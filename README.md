@@ -1,0 +1,2 @@
+# ZVE
+TRUSTWALLET
